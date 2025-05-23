@@ -23,3 +23,11 @@ At MANXPOWER, we understand that each industry has its own fire risk profile. Ou
 <li>Client-Centric Approach – We understand your industry and adapt to it.</li>
 <li>Innovation + Experience – Blending cutting-edge products with years of fire safety expertise.</li>
 Choose MANXPOWER – the name industries trust when choosing a <a href="https://manximpex.com/" title="fire suppression system supplier" alt"fire suppression system supplier">Fire suppression System Supplier</a> in India.<br>
+<h3>Contact Us</h3>
+<h4>MANXPOWER – Industrial and Fire Safety Products</h4>
+3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006<br>
++91-7428115550 | +91-7065192900 | +91-9811068229 | +91-11-49872937<br>
+<li>Mail: info@manximpex.com</li>
+<li>Website: https://manximpex.com/</li>
+<h3>Read Our Blog</h3>
+How to Create an Effective Fire Evacuation Plan For Your Business: https://manximpex.com/fire-evacuation-plan/
