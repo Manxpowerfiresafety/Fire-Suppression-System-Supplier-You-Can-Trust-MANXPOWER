@@ -31,3 +31,14 @@ Choose MANXPOWER – the name industries trust when choosing a <a href="https://
 <li>Website: https://manximpex.com/</li>
 <h3>Read Our Blog</h3>
 How to Create an Effective Fire Evacuation Plan For Your Business: https://manximpex.com/fire-evacuation-plan/
+<h2>Top 5 Trending FAQs – Fire Suppression System Supplier</h2>
+<h5>Q1. What fire suppression systems does MANXPOWER offer?</h5>
+We provide water-based sprinklers, clean agent systems (like FM-200, Novec 1230), CO₂ systems, and foam-based suppression solutions for diverse industries.<br>
+<h5>Q2. Is MANXPOWER certified to supply fire suppression systems?</h5>
+Yes, all products meet national and international standards such as ISI, UL, and CE, ensuring quality and reliability.<br>
+<h5>Q3. Can MANXPOWER provide systems for both residential and industrial use?</h5>
+Absolutely. We serve residential societies, factories, hotels, malls, hospitals, and educational institutes with tailored fire safety solutions.<br>
+<h5>Q4. Do you offer consultation or just supply systems?</h5>
+We provide end-to-end support—right from consultation and product selection to supply and compliance guidance.<br>
+<h5>Q5. How do I request a quote from MANXPOWER?</h5>
+Simply visit https://manximpex.com/ or contact us directly by phone or email to get a customized quote for your fire safety needs.
